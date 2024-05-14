@@ -7,9 +7,7 @@
 <p align="center"> 
 
 
-
-<p align="center"> # OLD
-  <p align="center">
+### old skins
 # [shift+tab](https://tokiwa.s-ul.eu/71VtUfUo)
 ![screenshot142](https://github.com/1tokiwa/skins/assets/140139725/e43faa12-75d7-4a2f-bd1a-dccd77397ebd)
 # [trial](https://tokiwa.s-ul.eu/FxRoUhh6)
