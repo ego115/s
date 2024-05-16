@@ -6,6 +6,11 @@
        height="150"></a>
 <p align="center"> 
 
+# [tokiwa-b](https://ego115.s-ul.eu/ZTILnU1l)
+![screenshot011](https://github.com/ego115/s/assets/169810219/88bfe001-2da6-4cdc-962d-a6eaf32210e6)
+
+# [tokiwa-re](https://ego115.s-ul.eu/1ACh0E2y)
+![screenshot010](https://github.com/ego115/s/assets/169810219/1d5bc244-ba16-46b1-a91c-5e765824858e)
 
 # [tokiwa-aosora](https://ego115.s-ul.eu/D20eoV6a)
 ![screenshot006](https://github.com/ego115/s/assets/169810219/286b101e-edb8-4b16-b3e0-4b95144eaa95)
