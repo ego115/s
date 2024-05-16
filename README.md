@@ -14,7 +14,7 @@
 
 # [tokiwa-aosora](https://ego115.s-ul.eu/D20eoV6a)
 ![screenshot006](https://github.com/ego115/s/assets/169810219/286b101e-edb8-4b16-b3e0-4b95144eaa95)
-[non insta ver.](https://ego115.s-ul.eu/2ZWQYxGX)
+[non insta ver.](https://ego115.s-ul.eu/Eg15EKuH)
 
 # [tokiwa-whrp](https://ego115.s-ul.eu/3ELN5wmM)
 ![screenshot007](https://github.com/ego115/s/assets/169810219/e1e4326d-4779-4381-8e63-1476dafcd44e)
