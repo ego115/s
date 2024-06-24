@@ -6,6 +6,12 @@
        height="150"></a>
 <p align="center"> 
 
+# [friendly](https://ego115.s-ul.eu/bs65cNxg)
+![screenshot024](https://github.com/ego115/s/assets/169810219/690c1661-34ce-4044-8be5-f317b61b1c5d)
+
+# [shieldflip](https://ego115.s-ul.eu/zDS7nnPC)
+![screenshot023](https://github.com/ego115/s/assets/169810219/a21199f2-2e0e-4f83-80be-08b9fef0a5b2)
+
 # [ᗜˬᗜ](https://ego115.s-ul.eu/BBu07uGZ)
 ![screenshot022](https://github.com/ego115/s/assets/169810219/70ec6b17-0d03-42e2-9712-3d561a69cc1d)
 
