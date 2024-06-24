@@ -25,7 +25,7 @@
 # [tokiwa-shield](https://ego115.s-ul.eu/OsxJi1j5)
 ![screenshot008](https://github.com/ego115/s/assets/169810219/4c0a2a78-156a-4a70-a8d2-540a6fb1bbf1)
 
-# [tokiwa-hr1](https://ego115.s-ul.eu/NmHIBB6J)
+# [tokiwa-hr](https://ego115.s-ul.eu/NmHIBB6J)
 ![screenshot009](https://github.com/ego115/s/assets/169810219/d2542a00-cfe0-40e7-ace9-5326efbea734)
 
 # [shift+tab](https://tokiwa.s-ul.eu/71VtUfUo)
