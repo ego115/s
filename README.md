@@ -6,6 +6,9 @@
        height="150"></a>
 <p align="center"> 
 
+# [ᗜˬᗜ](https://ego115.s-ul.eu/BBu07uGZ)
+![screenshot022](https://github.com/ego115/s/assets/169810219/70ec6b17-0d03-42e2-9712-3d561a69cc1d)
+
 # [tokiwa-f](https://ego115.s-ul.eu/rRSMJ2zH)
 ![screenshot013](https://github.com/ego115/s/assets/169810219/0b43fab3-ed2a-48ff-acfe-34b2bbba6b29)
 
